@@ -2,6 +2,6 @@ This is a project about MTN a telecommiunication cmpany in Ivory Coast that want
 
 
 
-https://drive.google.com/open?id=12GFUuj1_t10QxoobzSKVF_BvxYoDs3zy
+
 
 
